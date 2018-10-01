@@ -1,1 +1,0 @@
-# drnorth.github.io
